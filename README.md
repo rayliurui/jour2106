@@ -6,4 +6,4 @@ test edit
 
 ## head1
 
-![](https://www.google.com/images/branding/googlelogo/2x/googlelogo_color_272x92dp.png)
+![](https://rayleigh489.github.io/platform.github.io/)
