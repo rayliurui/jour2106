@@ -7,15 +7,17 @@ Hi everyone. I'm Ray, 22 (but look younger). I took a data visualisation *theory
 * Major in journalism 
 * Know a little bit about coding; Simple illustration with CorelDraw
 * A very good listener 
+* Reading and Japanese animation
 
 ## Topic I'm interested in
-There are many things I desire to know. I prefer the billing of private doctors but I'm OK with any topic.
+There are many things I desire to know. I prefer the billing of private doctors because I have the same question about medical fee. But I'm OK with any topic. 
 
 ## Teammates I'm looking for
-I hope my teammates are responsible and enjoy teamworking. 
+I hope my teammates are responsible and enjoy teamworking. Let's challenge everything!!!
 
 
 
 Here is one of my previous work:</br>https://rayleigh489.github.io/platform.github.io/ </br>
-Here is how I worked on my previous work:
+Here is how I worked on my previous work:</br>
 ![](http://mmbiz.qpic.cn/mmbiz_gif/Azu3H59E5kicJzDvLd7XmheicDcaDuf15EicYv42s6dfIvcN9zCKYRwGDhiaAibwne1vP0o4W8S4q0cFge6UeicdIR0A/0?wx_fmt=gif)
+</br> I believe this semester will be different because of you. Happy Chinese New Year!
